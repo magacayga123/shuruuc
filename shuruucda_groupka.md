@@ -1,5 +1,5 @@
 Asc musali
- Shuruucda groupka majliska saliga waa kuwan :
+ Shuruucda groupka majliska saliga waa kuwan :\
  1)saliga waqtiga lasoo gudbinayaa waa 6:00 am maalinta ilaa 5:00 am maalinta kale markaa halsaacad ayaa ah lock\
  2) halmar ayaa lasoo gudbiyaa saliga maalintii markaa hadaad soo gudbisid hal kabadan waxa laqaadanayaa ta uhoraysa :laakiin waaa lakarahsadaa\
  3)10 maalmood kabadan hadaad soo gudbin waydid bishii 28-31 kay doonto ha ahaatee groupka ayaad kabaxaysaa + sadex bilood oo aad sooo baratid tarbiyad \
