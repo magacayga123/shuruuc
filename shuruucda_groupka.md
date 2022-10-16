@@ -9,6 +9,6 @@ Asc musali\,
  6)saliga aad soogudbinaysaa waa kamaalintaa aad akhriday maaha total aad isku soo gaysanaysid dhowr maalmood hadaad ilawdid inaad soo gudbisid saliga maalin 
  ilaahay ayaa kaa abaal marin doona laakiin groupka hasoo dhigin \
  7)saliga ugu yar ee la isla qaatay waa 100 hada maalintii \
- 8) layla ccasiis waxa lagu ansixiyay dicrayto madaxwayne inaan groupka laga saarayn waxa ayna sali soogudbin imika 15th oct iyo 100+  maalmood oo kahoreeyey
+ 
    ###### kudhaqan wanaagsan
  
